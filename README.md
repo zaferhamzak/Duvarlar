@@ -6,8 +6,11 @@ Bu evrende, sevginin binbir hâli, yalnızlığın karanlık yüzü ve yeniden d
 Evrenin Temaları
 
    Yalnızlık: Herkesin içinde bir köşede sakladığı, zaman zaman tüm dünyayı saran bir his.
+   
    Aşk: İyileştiren, yakan, bazen de geçmişte bırakılan bir iz.
+   
    Kırılganlık: Güçlü görünen bedenlerin ardında saklanan, fırtınalarla yoğrulmuş ruhlar.
+   
    Umut: Ne kadar karanlık olursa olsun, bir gün yeniden doğma arzusunu canlı tutan ışık.
 
 Katkı ve Geliştirme
