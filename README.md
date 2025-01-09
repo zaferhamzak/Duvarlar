@@ -1,4 +1,4 @@
-Duvarlar: Kavuşamayan Ruhların Hikâyesi
+**Duvarlar: Kavuşamayan Ruhların Hikâyesi**
 
 Bu repo, insan ruhunun derinliklerini, ilişkilerin karmaşıklığını ve hayatın sessiz dönüşlerini anlamaya adanmıştır. Her karakter, bu evrenin dokusunda bir iplik; geçmişleri, hayalleri ve pişmanlıklarıyla bir araya gelerek büyük bir hikâyenin parçalarını oluşturuyor.
 
