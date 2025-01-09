@@ -1,59 +1,72 @@
-***Karakter Kişiliği***: Güçlü gözükmeye çalışsada içinde fırtınalar kopan bir karakter ki bundan mütevellit geceleri kendini bulan bir kişidir Fatih. Asıl mesleği halıcılık olan Fatih aslına bakılırsa babasından kalma dükkanı pek benimseyememiş ve iş başında sürekli uyuklayan biridir. Müşterilerine karşı ilgisizliği ve işlerin krizler sonucu ketunlaşması sonucu onu bu alanda da zorlu vakitler bekliyordu zaten ne kadar uğraşsasa bu alandada pek başarılı olamamıştır. 16 yaşında babasının zoru ile liseyi terk etmiş ve bir işe verilmişti. Kimi zaman kahvehanelerde garson, kimi zaman bilardo salonlarında kasiyerlik yapmış rüyalarında bile ıstaka seslerini duyar olmuştu. Kahvehanelerde sabahçılardan çektiklerini bir o birde Allah bilir zaten. Ailesi onu sevsede onun içinde bileklerini kesmeyi deneyecek yaşamdan isteksizlik ve melankoni hali mevcuttu. Akıllı adamdı Fatih kendini bildiğinde beri ama bir türlü hayatı ve insanları sevip sarılamıyordu. Hayatı boyunca hiç aşık olmaması ve bu tarz duygulara (Bu his kırılana kadar) pek inanmaması onu ketum bir kişi haline getiriyordu. Arkadaşları ile yaptığı en aşırı etkinlik akşam saatlerinde okey oynamak ve mahallede turlamaktı. Yakın arkadaşı Yusuf ve Bahadır ile mahallenin gençleri tarafından sevilen ve sayılan kişiler olmuşlardı. Aslına bakılırsa onun hayatında birçok kırılma noktası vardı. Ona beklemeyeceğiniz kadar şefkat ile yaklaşan ve onu mütemadiyen geliştirmeye çalışan babasının vefatı veya arkadaşı Yusuf'un intihar denemesi onun hayatında sert noktalar oluşmasını sağlamıştı. Müşkülpesent annesi onun durmadan evlenmesi için onu zorluyordu ama o buna pek sıcak bakmıyordu. 
+**Karakter Kişiliği:**
 
-Bir gün intiharından dolayı akıl hastahanesinde yatan ve yarı belinden aşağısı tutmayan Yusufun ziyaretine gitti. İvedilikle konuştuklarına dikkat etmeye çalşıyordu ve ne olduğunu öğrenmeye çalışıyordu. Belkide şu anda öğrenecekleri onun hayatını paraşütü açılmış bir kişinin havadaki uçağa geri dönememesi misali değiştirecekti. Yusuf onun hayatında çocukluğundan beri yanındaydı ve onu hiç yalnız bırakmamıştı. Onların dostuğunu anlatacak bir şarkı olsaydı meledisi ve sözleri niteliği ile kesinlikle **Beyaz Broadway** olurdu. Yusuf usulca ağzındaki baklayı ilaçlarınında etkisiyle devrik cümleler ile çıkarıyordu. Bir kadından bahsediyordu bu kadın onun hayatının sadece 2 ayında yer almış ama 1 haftalık yokluğu Yusufun tamamiyle çökmesine sebep olmuştu. Tekrardan yavaş yavaş hareket ederek bir fotoğraf uzattı ona ve hiç birşey demeden baygınlık geçirdi Yusuf. O zamandan sonrada birdaha Yusuf ile Fatih görüşmedi zaten. 
+Güçlü gözükmeye çalışsa da içinde fırtınalar kopan bir karakterdir Fatih. Bundan mütevellit, geceleri kendini bulan bir kişidir. Asıl mesleği halıcılık olan Fatih, babasından kalma dükkânı pek benimseyememiştir. İş başında sürekli uyuklayan biridir. Müşterilerine karşı ilgisizliği ve işlerin krizler sonucu ketumlaşması, onu bu alanda da zorlu vakitlerin beklediğinin göstergesiydi. Zaten ne kadar uğraşsa da bu alanda pek başarılı olamamıştır.
+
+16 yaşında babasının zoru ile liseyi terk etmiş ve bir işe verilmişti. Kimi zaman kahvehanelerde garson, kimi zaman bilardo salonlarında kasiyerlik yapmış, rüyalarında bile ıstaka seslerini duyar olmuştu. Kahvehanelerde sabahçılardan çektiklerini bir o, bir de Allah bilirdi zaten. Ailesi onu sevse de içinde bileklerini kesmeyi deneyecek kadar melankoli ve yaşamdan isteksizlik hali mevcuttu.
+
+Akıllı bir adamdı Fatih, kendini bildi bileli. Ama bir türlü hayatı ve insanları sevip sarılamıyordu. Hayatı boyunca hiç âşık olmaması ve bu tarz duygulara (bu his kırılana kadar) pek inanmaması, onu ketum bir kişi hâline getiriyordu. Arkadaşlarıyla yaptığı en aşırı etkinlik, akşam saatlerinde okey oynamak ve mahallede turlamaktı. Yakın arkadaşı Yusuf ve Bahadır ile mahallenin gençleri tarafından sevilen ve sayılan kişiler olmuşlardı.
+
+Aslına bakılırsa onun hayatında birçok kırılma noktası vardı. Ona beklenmeyecek kadar şefkatle yaklaşan ve onu mütemadiyen geliştirmeye çalışan babasının vefatı veya arkadaşı Yusuf'un intihar denemesi, onun hayatında sert izler bırakmıştı. Müşkülpesent annesi durmadan evlenmesi için onu zorluyordu ama o buna pek sıcak bakmıyordu.
+
+Bir gün, intiharından dolayı akıl hastanesinde yatan ve belden aşağısı tutmayan Yusuf’u ziyarete gitti. Konuştuklarına dikkat etmeye çalışıyordu ve ne olduğunu öğrenmek istiyordu. Belki de şu anda öğrenecekleri, onun hayatını paraşütü açılmış bir kişinin havadaki uçağa geri dönememesi misali değiştirecekti. Yusuf, onun hayatında çocukluğundan beri yanındaydı ve onu hiç yalnız bırakmamıştı. Onların dostluğunu anlatacak bir şarkı olsaydı, melodisi ve sözlerinin niteliği ile kesinlikle **"Beyaz Broadway"** olurdu.
+
+Yusuf usulca, ağzındaki baklayı ilaçların da etkisiyle devrik cümlelerle çıkarıyordu. Bir kadından bahsediyordu. Bu kadın, onun hayatında sadece iki ay yer almış ama bir haftalık yokluğu Yusuf’un tamamen çökmesine sebep olmuştu. Yavaşça hareket ederek bir fotoğraf uzattı Fatih’e ve hiçbir şey demeden baygınlık geçirdi Yusuf. O andan sonra da Fatih, Yusuf’la bir daha görüşmedi.
 
 Fotoğrafın arkasında bir şiir yazıyordu:
 
-**Sen Beni Birde Donarken Gör
+_**Sen beni bir de donarken gör  
 Hayatı sorgulatır insana hemen,  
 Ben neden buradayım, diyiverirsin.  
-Belki de insanlardan en bilgin sensin.**
+Belki de insanlardan en bilgin sensin.**_
 
-Bu mısraları okuyan Fatih kalakalmıştı ve bu kadını bulmak adına yapılması gereken her şeyi yapması gerektiğinin farkına varmıştı.
+Bu mısraları okuyan Fatih kalakalmıştı. Bu kadını bulmak adına yapılması gereken her şeyi yapması gerektiğini anlamıştı.
 
-Rüyalarında Yusuf'un ölümünü ve hali hazırda üzgün olan ailesinin Yusuf'un intiharı sırasında evine koşma anlarını aklından çıkaramıyordu. Yağmur ve bulut gibi olan bu ikili birbirini nahoş bir şekilde olsada tamamlıyordu. Nasıl yağmur olmazsa bulut tek başına kuru ve sevimsiz bir soğuk getirir, bulut olsmada yağmur zaten gelmez ya işte öyle bir ekipti bizim Yusuf, Fatih ve Bahadır.
+Rüyalarında Yusuf'un ölümünü ve hâlihazırda üzgün olan ailesinin Yusuf'un intiharı sırasında evine koşma anlarını aklından çıkaramıyordu. Yağmur ve bulut gibi olan bu ikili, birbirini nahoş bir şekilde de olsa tamamlıyordu. Nasıl ki yağmur olmazsa bulut tek başına kuru ve sevimsiz bir soğuk getirir, bulut olmadan da yağmur zaten gelmez; işte öyle bir ekipti bizim Yusuf, Fatih ve Bahadır.
 
-Hayatının değişimini iliklerine kadar hisseden Fatih bu Yasemini bulmalıydı ki o kadarda zor olmamıştı. Yasemin kendi halinde yaşayan bir hanım kardeşimizdi. Etliye sütlüye karışmayan ama bir o kadarda adı hamaratlığı ve hanım hanımcık olması ile anılan bir kişiydi. 
+Hayatının değişimini iliklerine kadar hisseden Fatih, bu Yasemin’i bulmalıydı. Aslında bu o kadar da zor olmamıştı. Yasemin, kendi hâlinde yaşayan bir hanım kardeşimizdi. Etliye sütlüye karışmayan ama bir o kadar da adı hamaratlığı ve hanım hanımcık olmasıyla anılan biriydi.
 
-Fatih gördüğü an tutulmuştu Yasemine ve her türlü değişikliğe gitmeye hazır bir hal almıştı. İlk önce konuşmaya çalıştı ona ama başarısız olunca isimsiz bir şekilde ona mektuplar yazmaya başlamıştı. Yasemin mektupların üzerindeki adrese merakına yenik düşerek mektuplar atmaya başladı ve Fatih'e bu mektup ulaşınca dünyalar Fatihin olmuştu. Elifi elifine 23. mektupta Yasemin bizim Fatihi mahalledeki tatlıcıya davet etmişti. Tabiki de aklında bin bir soru ile ilk defa aşık olmuş ve iliklerine kadar hissetmiş Fatih çekinceler içinde boğuşuyordu.
+Fatih, onu gördüğü an Yasemin’e tutulmuştu ve her türlü değişikliğe gitmeye hazır bir hâl almıştı. İlk önce onunla konuşmaya çalıştı; ama başarısız olunca isimsiz bir şekilde ona mektuplar yazmaya başladı. Yasemin, mektupların üzerindeki adrese merakına yenik düşerek cevaplar yazmaya başladı ve bu cevaplar Fatih’e ulaşınca dünyalar Fatih’in olmuştu. Elifi elifine 23. mektupta, Yasemin bizim Fatih’i mahalledeki tatlıcıya davet etmişti. Tabii ki bin bir soruyla boğuşan, ilk defa aşık olmuş ve bunu iliklerine kadar hisseden Fatih, çekinceler içinde kıvranıyordu.
 
-İlk buluşmalarında Fatih sakin görünmeye çalışsada işinde savaş marşları çalarcasına depremler oluyordu. İlk yedikleri tatlı ve ilişkilerinin başlangıcını barındıran bu tatlıcı bazılarımızın rüyalarının baş kentlerinden biriydi resmen. Sohbette bir anda Yasemin ağzından Fatihin adını kaçırmıştı şaşırtıcı bir şekilde. Bu bilgiye sahip olmasının tek sebebi postahanecinin bizzat Yaseminin babası olmasıydı. Bunu duyunca şaşkınlığını gizleyemeyen Fatih ilgi ile parlayan ve ona utancın içerisinde zar zor belli olan gözlere bakarak kala kaldı. Hayatının eyyamında ki iki kişin bu bakışması dışarıdaki çocuk sesleriyle son bulsada Fatih yıllarca bu soruyu sormaya çekindi ve Yaseminde cevaplamaktan Fatihin bunca zaman kim olduğunun bilinmesini öğrenince yaşayacağı duyguları düşünerek vazgeçti. Buluşmalar buluşmaları, köprü altında bakışmalar bakışmaları kovalar oldu. İkiside olacakların farkındaydı ama ikisininde geçmişlerinden gelen korku ve çekingenlik bilhassa karşıdakini kırma korkusu onları yiyip bitiriyordu. Bu süre zarfında Fatih rüyalarında sadece arkaşı Yusuf'dan aldığı resimin arkasınaki şiiri görür olmuştu ve anlam veremediği bir şekilde düşünemez olmuştu. Aldı en sonunda kalemi kağıdı ve bir tren garında şu şiiri yazdı:
+İlk buluşmalarında Fatih, sakin görünmeye çalışsa da içinde savaş marşları çalarcasına depremler oluyordu. İlk yedikleri tatlı ve ilişkilerinin başlangıcını barındıran bu tatlıcı, bazılarımızın rüyalarının başkentlerinden biri gibiydi adeta. Sohbet sırasında Yasemin, bir anda Fatih’in adını şaşırtıcı bir şekilde ağzından kaçırmıştı. Bu bilgiye sahip olmasının tek sebebi, postahanecinin bizzat Yasemin’in babası olmasıydı. Bunu duyunca şaşkınlığını gizleyemeyen Fatih, ilgiyle parlayan ve utanç içinde zar zor belli olan gözlere bakarak kalakaldı. Hayatının eyyamındaki bu iki kişinin bakışması dışarıdaki çocuk sesleriyle son bulsa da, Fatih yıllarca bu soruyu sormaya çekindi ve Yasemin de cevaplamaktan, Fatih’in bunca zaman kim olduğunu öğrenince yaşayacağı duyguları düşünerek vazgeçti.
 
-***Zamana olan hürmetim akıyor satırlarıma***
+Buluşmalar buluşmaları, köprü altında bakışmalar bakışmaları kovalar oldu. İkisi de olacakların farkındaydı; ama ikisinin de geçmişlerinden gelen korku ve çekingenlik, bilhassa karşıdakini kırma korkusu, onları yiyip bitiriyordu. Bu süre zarfında Fatih, rüyalarında sadece arkadaşı Yusuf’tan aldığı resmin arkasındaki şiiri görür olmuştu ve anlam veremediği bir şekilde düşünemez hâle gelmişti. En sonunda kalemi kâğıdı aldı ve bir tren garında şu şiiri yazdı:
 
-***Bu dünya bana kurulmuş bir tuzak
-Sanki sabahın beşinde atılmış bir imza
-En kalbindeki, yegane çarkından aksak***
+_**Zamana olan hürmetim akıyor satırlarıma**_
 
-***Kalemimin cimri olduğu vakitlerdeyiz
-Oda biliyor nasıl daireler çizdiğimi delicesine***
+**Bu dünya bana kurulmuş bir tuzak  
+Sanki sabahın beşinde atılmış bir imza  
+En kalbindeki, yegâne çarkından aksak.**
 
-***Bazıları bir kadına aşık olmak ister,  
+_**Kalemimin cimri olduğu vakitlerdeyiz  
+O da biliyor nasıl daireler çizdiğimi delicesine.**_
+
+_**Bazıları bir kadına âşık olmak ister,  
 Bağlanmak ister birilerine gönülsüzce.  
 Bazıları da umarsızca bir yalnızlığı ister,  
-Alışmıştır unutulmaya, ölüler misali.***
+Alışmıştır unutulmaya, ölüler misali.**_
 
-***Bazılarının heybeler dolusu hayalleri vardır,  
+_**Bazılarının heybeler dolusu hayalleri vardır,  
 Asla gerçek olmayacak cinsten.  
 Bazılarınınsa ruhu boşalmıştır dibine kadar,  
-Bir daha dolamayacak, nemlenemeyecek kadar.***
+Bir daha dolamayacak, nemlenemeyecek kadar.**_
 
-***Bazılarımızı burada tutan hiçbir şey kalmamıştır,  
+_**Bazılarımızı burada tutan hiçbir şey kalmamıştır,  
 Sorgular hayatını, uyutmaz kafasındaki tilki.  
 Bazılarımızı o hiçlik tutar hayatta anlamsızca,  
-Kandırırlar kendilerini, alışmış gibi yaparak.***
+Kandırırlar kendilerini, alışmış gibi yaparak.**_
 
-***Bazılarımız şevkle uyanır sabahlarımıza,  
+_**Bazılarımız şevkle uyanır sabahlarımıza,  
 Onu yarın peygamber mucizesi bekliyormuşçasına.  
 Bazılarımız uyumak bile istemez; şişer gözlerinin altı,  
-Tatmıştır pis tadını aynı sabaha uyanmanın.***
+Tatmıştır pis tadını aynı sabaha uyanmanın.**_
 
-***Bazen insan sevdiklerini hiç bırakmak istemez,  
+_**Bazen insan sevdiklerini hiç bırakmak istemez,  
 Bir daha bulunamayacak bir fırsat gibi bakar onlara.  
 Bazense sadece siktir olup gitmek ister,  
-Bu dünyanın bir tuzak olduğunu anlamışcasına.***
+Bu dünyanın bir tuzak olduğunu anlamışçasına.**_
 
-Gel zaman git zaman bu ikili bir adım daha ilişkilerini öteye götürme kararı aldılar ve malumat-i süreçten sonra evlilik denen yola girerler. Bu süreç takribi 2 yıl alsa da o süre zarfında Fatih annesini kaybetti ve kardeşlerinden biri bir gece ansızın evden kaçtı. Yaseminden uzak kaldığı her gün bir ömür gibi gelip, küs yattıkları zamanlarda uykusuzluk krizlerine grip günlerce uyumaması işlerin tuzu biberi olmuştu.
 
-İşte hikayesi böyle olan birisinin başlangıçtaki buhranlı ruhsardan kurtulmasıda bilhassa o kadar zor oluyor ama Fatih eninde sonunda Yaseminin sadece varlığı ile bunu aşmış evlilik ile pastanın üzerindeki kirazı kendi yerleştirmişti. Bu ani ilişki hepimizin malumu tabikide ama elbette hudutları çatlamış bir sarmıçdan su tutmasını beklemek hayalcilik olacağı gibi çeperi aşınmış bir kalpte aşkı eninde sonunda dışarı vurmaya mahkumdur.
+Gel zaman git zaman, bu ikili ilişkilerini bir adım daha öteye götürme kararı aldılar ve malumat-ı süreçten sonra evlilik yoluna girdiler. Bu süreç takriben iki yıl alsa da, o süre zarfında Fatih annesini kaybetti ve kardeşlerinden biri bir gece ansızın evden kaçtı. Yasemin’den uzak kaldığı her gün bir ömür gibi gelip geçti; küs yattıkları zamanlarda uykusuzluk krizlerine girip günlerce uyumaması işlerin tuzu biberi olmuştu.
+
+İşte hikâyesi böyle olan birisinin, başlangıçtaki buhranlı ruh hâlinden kurtulması da bilhassa o kadar zor oldu; ama Fatih, eninde sonunda Yasemin’in sadece varlığı ile bunu aşmış ve evlilikle pastanın üzerindeki kirazı kendisi yerleştirmişti. Bu ani ilişki hepimizin malumu tabii ki; ama elbette hudutları çatlamış bir sarnıçtan su tutmasını beklemek hayalcilik olacağı gibi, çeperi aşınmış bir kalpte aşk da eninde sonunda dışarı vurmaya mahkûmdur.
 
