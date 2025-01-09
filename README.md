@@ -4,6 +4,8 @@ Bu repo, insan ruhunun derinliklerini, ilişkilerin karmaşıklığını ve haya
 
 Bu evrende, sevginin binbir hâli, yalnızlığın karanlık yüzü ve yeniden doğmanın umut veren ışığı bir arada bulunur. Hayatın bazen acıtan, bazen gülümseten gerçekleriyle yüzleşen bu karakterler, hepimizin ruhundan bir parça taşır.
 
+---
+
 **Katkı ve Geliştirme:**
 
 Bu evren, büyümeye ve yeni hikâyelerle zenginleşmeye açık. Yeni karakterler, yeni hikayeler ve yeni duygular bu yapının bir parçası olabilir. Eğer bu evrenin bir ipliğine dokunmak istersen, katkılarını dört gözle bekliyoruz.
