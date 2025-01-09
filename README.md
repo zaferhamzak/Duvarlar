@@ -8,10 +8,17 @@ Bu evrende, sevginin binbir hâli, yalnızlığın karanlık yüzü ve yeniden d
 
 Bu evren, büyümeye ve yeni hikâyelerle zenginleşmeye açık. Yeni karakterler, yeni hikayeler ve yeni duygular bu yapının bir parçası olabilir. Eğer bu evrenin bir ipliğine dokunmak istersen, katkılarını dört gözle bekliyoruz.
 
+---
+
 **İletişim:**
-  Mail: zaferhazmak@gmail.com
-  Instagram: zaferhamza_krc
-  Reddit: u/Ok-Sir892 
-  X.com : ZaferHamzaKuru1
-  BlueSky: zaferhamzak.bsky.social
+
+    Mail: zaferhazmak@gmail.com
+    
+    Instagram: zaferhamza_krc
+  
+    Reddit: u/Ok-Sir892 
+  
+    X.com : ZaferHamzaKuru1
+  
+    BlueSky: zaferhamzak.bsky.social
   
