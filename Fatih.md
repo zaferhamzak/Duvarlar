@@ -21,9 +21,9 @@ Fatih gördüğü an tutulmuştu Yasemine ve her türlü değişikliğe gitmeye 
 
 ***Zamana olan hürmetim akıyor satırlarıma***
 
-**Bu dünya bana kurulmuş bir tuzak
+***Bu dünya bana kurulmuş bir tuzak
 Sanki sabahın beşinde atılmış bir imza
-En kalbindeki, yegane çarkından aksak **
+En kalbindeki, yegane çarkından aksak***
 
 ***Kalemimin cimri olduğu vakitlerdeyiz
 Oda biliyor nasıl daireler çizdiğimi delicesine***
